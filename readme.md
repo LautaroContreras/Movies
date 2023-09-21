@@ -1,2 +1,3 @@
 Movies
- integranbtes del equipo
+integranbtes del equipo
+ Lautaro Contreras, 25 años, Cordóba Capital
